@@ -14,7 +14,8 @@
 - i'm a system. unless we're close please don't ask for more personal info Please Just use our collective name & pronouns
   - if my current pony has anything like "fict" or "introj" in the name then the characters name is usually okay
 - directed towards isaac fans: i ship the playable characters but it's almost entirely silly stuff
-  - i think sexualizing them is weird. do not accuse me of doing that shit.
+  - i think sexualizing them is weird. do not accuse me of doing that shit i'll probably just block you
+    - i find the sexual mods disgusting too Sorry. don't bring them up around me
   - i also ship the bosses but i really don't care for anything aside from rainmaker + clutch + scourge
   - i rarely bring this up anyway unless i'm with close friends (or people i know who don't care)
 - i don't really care for the fandoms of most of my interests (find them annoying) but i try to be friendly
