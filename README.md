@@ -2,6 +2,9 @@
 
 ^ my of montreal blinkie collection. anyway please read this i'll be happy if you do. or don't i can't force you
 
+also quick thing: kissing, booping, whispering, crowning, c+h all ok!!!!!!! cuddle piles Maybe <br>
+no random friend/party requests i won't accept them
+
 **BEFORE YOU FRIEND (/INTERACT...)**
 - i'm Very awkward when it comes to socializing and talking. sorry if i come off as weird it is just how i am...
 - i Will ramble on about things i like. if you want me to shut up Please Make it obvious otherwise i won't for a while!!!
