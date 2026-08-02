@@ -22,6 +22,7 @@ no random friend/party requests i won't accept them (unless you're someone i alr
   - i also ship the bosses but i really don't care for anything aside from rainmaker + clutch + scourge
   - i rarely bring this up anyway unless i'm with close friends (or people i know who don't care)
 - i don't really care for the fandoms of most of my interests (find them annoying) but i try to be friendly
+- uhhh. please don't use number/symbol based typing quirks when talking to me (something l1k3 th15) just very annoying overall
 - i'll add more here later
 
 **DO NOT INTERACT**
