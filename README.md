@@ -29,7 +29,9 @@ no random friend/party requests i won't accept them (unless you're someone i alr
 - general bigotry (homo/transphobic, racist, sexist, ableist, You Get The Idea)
 - radqueers, harmful transids, pro-harmful paras
 - queer exclusionists
-- proshippers/fiction or darkshippers
+- people who romanticize weird shit in media
+  - this also includes if you're Okay with/do not mind the romanticization of weird stuff
+  - basically just proshippers/darkshippers fuck off
 - supporters of weird/bad people
   - mcyt specifics: dream/dream team, wilbur soot, iskall, avid
 - people under 13. i just feel awkward 
