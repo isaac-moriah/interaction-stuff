@@ -35,7 +35,7 @@ no random friend/party requests i won't accept them (unless you're someone i alr
 - idk man
 
 **FANDOMS INT. WITH CAUTION**
-- dandys world, forsaken
+- roblox
 - true crime community
 - dream smp
 - genshin impact
@@ -43,3 +43,4 @@ no random friend/party requests i won't accept them (unless you're someone i alr
   - this is such a random one but man you guys piss me off a lot Okay?
 - hazbin hotel/helluva boss / really any vivziepop fan
 - object show community
+- cookie run
